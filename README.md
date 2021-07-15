@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NaoPelo
+- 👀 I’m interested in photography
+- 🌱 I’m currently learning human resource management 
